@@ -1,1 +1,1 @@
-# tanyagandhi11.github.io
+# tanyagandhiportfolio.github.io
